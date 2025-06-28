@@ -1,16 +1,16 @@
-# speedcat闪电猫vpn官网地址 + 最新优惠码
+# speedcat闪电猫官网地址 + 最新优惠码
 
 speedcat永久官网：[speedcat.co](https://xuv.cc/out/cat)
 
 [![speedcat闪电猫官网](speedcat_20250122_232453.png)](https://xuv.cc/out/cat)
 
-## speedcat闪电猫vpn介绍
+## speedcat闪电猫介绍
 
 闪电猫 SpeedCAT 主推高端稳定IPLC专线机场，采用 Shadowsocks协议，全平台兼容良好，解锁 ChatGPT 以及奈飞等热门流媒体。还提供企业套餐，适合外贸工作。
 
 机场节点：香港、日本、台湾、新加坡、美国、英国、加拿大、印度、土耳其、巴西、德国、泰国、澳大利亚、马来西亚等。
 
-### speedcat闪电猫vpn特点
+### speedcat闪电猫特点
 
 >闪电猫是一个海外的SS机场，重新定义科学上网，主打快速稳定，全专线IPLC，没有倍率、没有套路，承诺买多少给多少。
 >
