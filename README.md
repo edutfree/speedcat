@@ -6,6 +6,14 @@ speedcat永久官网：[speedcat.co](https://webinv02.sc-aff.cc/auth/register?co
 
 备用域名：[https://scweb02.speedcat.in](https://scweb02.speedcat.in/auth/register?code=0CzCBCcp)
 
+---
+
+**温馨提示：任何服务均有跑路风险，请自行注意防范！**
+
+**本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
+
+---
+
 ## speedcat闪电猫介绍
 
 闪电猫 SpeedCAT 主推高端稳定IPLC专线加速器，采用 Shadowsocks协议，全平台兼容良好，解锁 ChatGPT 以及奈飞等热门流媒体。还提供企业套餐，适合外贸工作。
@@ -64,3 +72,11 @@ Speedcat(闪电猫)暑期大促，超值活动火爆开启，叠加站内原有�
 ## 温馨提示
 
 > speedcat跑路了吗？暂时没有。不过网络加速器总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。
+
+---
+
+**温馨提示：任何服务均有跑路风险，请自行注意防范！**
+
+**本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
+
+---
