@@ -2,8 +2,6 @@
 
 闪电猫 SpeedCAT 主推高端稳定IPLC专线加速器，老牌稳定，采用 Shadowsocks协议，全平台兼容良好，解锁 ChatGPT 以及奈飞等热门流媒体。还提供企业套餐，适合外贸工作。
 
-节点：香港、日本、台湾、新加坡、美国、英国、加拿大、印度、土耳其、巴西、德国、泰国、澳大利亚、马来西亚等。
-
 ---
 
 speedcat永久官网：[speedcat.co](https://scweb02.speedcat.la/auth/register?code=0CzCBCcp)
@@ -11,6 +9,8 @@ speedcat永久官网：[speedcat.co](https://scweb02.speedcat.la/auth/register?c
 网站域名：[https://scweb02.speedcat.la](https://scweb02.speedcat.la/auth/register?code=0CzCBCcp)
 
 备用域名：[https://scweb02.speedcat.in](https://scweb02.speedcat.in/auth/register?code=0CzCBCcp)
+
+> speedcat节点：香港、日本、台湾、新加坡、美国、英国、加拿大、印度、土耳其、巴西、德国、泰国、澳大利亚、马来西亚等。
 
 ## speedcat闪电猫优惠码
 
@@ -60,10 +60,6 @@ Speedcat(闪电猫)2025年12月大促，叠加站内原有活动享受折上折�
 参考一下网友测速：
 
 [![speedcat闪电猫节点测速](speedcat_20250122_231850.png)](https://xuv.cc/out/cat)
-
-## 温馨提示
-
-> speedcat跑路了吗？暂时没有。不过网络加速器总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。
 
 ---
 
