@@ -1,24 +1,24 @@
-# speedcat闪电猫官网地址 + 最新优惠码
+# speedcat闪电猫官网最新地址
 
-speedcat永久官网：[speedcat.co](https://webinv02.sc-aff.cc/auth/register?code=0CzCBCcp)
+闪电猫 SpeedCAT 主推高端稳定IPLC专线加速器，老牌稳定，采用 Shadowsocks协议，全平台兼容良好，解锁 ChatGPT 以及奈飞等热门流媒体。还提供企业套餐，适合外贸工作。
 
-网站域名：[https://scweb02.speedcat.la](https://webinv02.sc-aff.cc/auth/register?code=0CzCBCcp)
+节点：香港、日本、台湾、新加坡、美国、英国、加拿大、印度、土耳其、巴西、德国、泰国、澳大利亚、马来西亚等。
+
+---
+
+speedcat永久官网：[speedcat.co](https://scweb02.speedcat.la/auth/register?code=0CzCBCcp)
+
+网站域名：[https://scweb02.speedcat.la](https://scweb02.speedcat.la/auth/register?code=0CzCBCcp)
 
 备用域名：[https://scweb02.speedcat.in](https://scweb02.speedcat.in/auth/register?code=0CzCBCcp)
 
----
+## speedcat闪电猫优惠码
 
-**温馨提示：任何服务均有跑路风险，请自行注意防范！**
+Speedcat(闪电猫)2025年12月大促，叠加站内原有活动享受折上折！
 
-**本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
+比如年付套餐自带8折，加上双十一大促活动8折之后相当于6.4折，力度诱人。
 
----
-
-## speedcat闪电猫介绍
-
-闪电猫 SpeedCAT 主推高端稳定IPLC专线加速器，采用 Shadowsocks协议，全平台兼容良好，解锁 ChatGPT 以及奈飞等热门流媒体。还提供企业套餐，适合外贸工作。
-
-节点：香港、日本、台湾、新加坡、美国、英国、加拿大、印度、土耳其、巴西、德国、泰国、澳大利亚、马来西亚等。
+8折优惠码：[80sc](https://webinv02.sc-aff.cc/auth/register?code=0CzCBCcp)
 
 ### speedcat闪电猫特点
 
@@ -33,14 +33,6 @@ speedcat永久官网：[speedcat.co](https://webinv02.sc-aff.cc/auth/register?co
 >晚高峰不限速，无视高峰期稳定不动摇，所有套餐x1倍率。
 >
 >节点速度高达5 GBPS
-
-## speedcat闪电猫优惠码
-
-Speedcat(闪电猫)2025年12月大促，叠加站内原有活动享受折上折！
-
-比如年付套餐自带8折，加上双十一大促活动8折之后相当于6.4折，力度诱人。
-
-8折优惠码：[80sc](https://webinv02.sc-aff.cc/auth/register?code=0CzCBCcp)
 
 ## speedcat闪电猫套餐价格
 
