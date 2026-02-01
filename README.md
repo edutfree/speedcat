@@ -14,11 +14,11 @@ speedcat永久官网：[speedcat.co](https://scweb02.speedcat.la/auth/register?c
 
 ## speedcat闪电猫优惠码
 
-Speedcat(闪电猫)2025年12月大促，叠加站内原有活动享受折上折！
+Speedcat(闪电猫)开启2月大促，叠加站内原有活动享受折上折！
 
-比如年付套餐自带8折，加上双十一大促活动8折之后相当于6.4折，力度诱人。
+比如年付套餐自带8折，加上2月春节大促活动8折之后相当于6.4折，力度诱人。
 
-8折优惠码：[80sc](https://webinv02.sc-aff.cc/auth/register?code=0CzCBCcp)
+8折优惠码：[202680sc](https://webinv02.sc-aff.cc/auth/register?code=0CzCBCcp)
 
 ### speedcat闪电猫特点
 
