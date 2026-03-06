@@ -4,11 +4,11 @@
 
 ---
 
-speedcat永久官网：[speedcat.co](https://scweb02.speedcat.la/auth/register?code=0CzCBCcp)
+speedcat永久官网：[speedcat.co](https://0e7b82b5-0423-392f-8620-a416db6beb90.caveaff.vip/auth/register?code=m2yA)
 
-网站域名：[https://scweb02.speedcat.la](https://scweb02.speedcat.la/auth/register?code=0CzCBCcp)
+网站域名：[https://scweb02.speedcat.la](https://0e7b82b5-0423-392f-8620-a416db6beb90.caveaff.vip/auth/register?code=m2yA)
 
-备用域名：[https://scweb02.speedcat.in](https://scweb02.speedcat.in/auth/register?code=0CzCBCcp)
+备用域名：[https://scweb02.speedcat.in](https://0e7b82b5-0423-392f-8620-a416db6beb90.caveaff.vip/auth/register?code=m2yA)
 
 > speedcat节点：香港、日本、台湾、新加坡、美国、英国、加拿大、印度、土耳其、巴西、德国、泰国、澳大利亚、马来西亚等。
 
