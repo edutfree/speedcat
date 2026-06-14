@@ -4,9 +4,9 @@
 
 ---
 
-speedcat永久官网：[speedcat.co](https://a52.lml2vipaff05.cc/register?aff=Z6qxg6j5)
+speedcat永久官网：[speedcat.co](https://lml2vipaff05.cc/register?aff=Z6qxg6j5)
 
-网站域名：[https://scweb02.speedcat.la](https://a52.lml2vipaff05.cc/register?aff=Z6qxg6j5)
+网站域名：[https://scweb02.speedcat.la](https://lml2vipaff05.cc/register?aff=Z6qxg6j5)
 
 备用域名：[https://scweb02.speedcat.in](https://scweb02.speedcat.in/auth/register?code=0CzCBCcp)
 
@@ -18,7 +18,7 @@ Speedcat(闪电猫)开启2月大促，叠加站内原有活动享受折上折！
 
 比如年付套餐自带8折，加上2月春节大促活动8折之后相当于6.4折，力度诱人。
 
-8折优惠码：[202680sc](https://a52.lml2vipaff05.cc/register?aff=Z6qxg6j5)
+8折优惠码：[202680sc](https://lml2vipaff05.cc/register?aff=Z6qxg6j5)
 
 ### speedcat闪电猫特点
 
